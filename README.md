@@ -1,2 +1,2 @@
 ﻿# First-Grading-Examination
-<img width="1917" height="894" alt="image" src="https://github.com/user-attachments/assets/79306387-fb99-49f2-8715-9fe61dd0ac84" />
+<img width="1919" height="901" alt="image" src="https://github.com/user-attachments/assets/756bfb13-0c43-4ea9-9e56-010bf1e88292" />
